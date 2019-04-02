@@ -1,2 +1,2 @@
 # Hangzhou
-2022 Para Asian Games
+2022 Asian Para Games
